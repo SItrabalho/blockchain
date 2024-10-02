@@ -1,4 +1,4 @@
-# Trabalho sobre Blockchain - Aula se Segurança da Informação - Profª Bruno Zolotareff
+# Trabalho sobre Blockchain - Aula de Segurança da Informação - Profª Bruno Zolotareff
 
 ## Link para o PDF do artigo
 https://pdf.ac/2ANOVo
