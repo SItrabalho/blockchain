@@ -4,7 +4,7 @@
 https://pdf.ac/2ANOVo
 
 ## Nome dos integrantes
-Lucas Santos - 
+Lucas Santos - https://www.linkedin.com/in/lucas-santos-298671330
 <br/>Nicolas Assunção - www.linkedin.com/in/nicolas-assunção-de-jesus-444670330
 <br/>Pedro Lucas - www.linkedin.com/in/pedro-souza-6803432a7
 <br/>Thiago Januário - www.linkedin.com/in/thiago-januário-6728302a4
