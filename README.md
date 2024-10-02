@@ -7,7 +7,7 @@ https://pdf.ac/2ANOVo
 Lucas Santos - 
 <br/>Nicolas Assunção -
 <br/>Pedro Lucas -
-<br/>Thiago Januário -
+<br/>Thiago Januário - www.linkedin.com/in/thiago-januário-6728302a4
 <br/>Vitor Antonio - 
 
 ## Informações do professor que fez o artigo
